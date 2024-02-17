@@ -1,0 +1,1 @@
+My aim for joining Slightly Techie is to ain hands-on experience in Tech and switch career. At the end of the programme, I should be able to work on the basics of backend engineering. The goal is to become a full-stack engineer but baby steps, you know. 
